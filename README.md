@@ -2,3 +2,6 @@ Gmhs2 let me put this up on github. Its considered public media by him so he don
 <img width="690" height="134" alt="image" src="https://github.com/user-attachments/assets/b9460af4-f4d0-4d58-a383-4141506e5679" />
 
 the GOAT who made the original game on Roblox >> https://github.com/gmhs022
+
+be warned
+every sound is fucked up
